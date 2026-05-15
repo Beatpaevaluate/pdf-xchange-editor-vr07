@@ -1,4 +1,4 @@
-# 
+# automatic PDF-XChange Editor for PC | PDF-XChange Editor for Windows Extension | export-to-Word + password-protection offers the most advanced PDF-XChange Editor for PC |
 
 
 
